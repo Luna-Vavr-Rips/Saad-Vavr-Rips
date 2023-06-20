@@ -5,4 +5,4 @@ Here you can find super duper epic medium-high varying quality rips
 
 
 
-(currently owned by a fan/unofficial)
+(currently owned by a fan)
